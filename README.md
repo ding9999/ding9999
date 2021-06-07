@@ -6,7 +6,7 @@
 如有使用上问题请至土豆交流群询问管理
 土豆交流群： https://lynnconway.me/dingdingapp
 
-在线观看（https://ding1.app）
+在线观看（https://ding1.live）
 
 1. 如果域名被封请访问下个域名https://ncddh5.xggjwb.club/
 2. 无需安装，大陆网络直接观影（网页）
