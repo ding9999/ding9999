@@ -11,4 +11,4 @@
 1. 如果域名被封请访问下个域名https://ncddh5.xggjwb.club/
 2. 无需安装，大陆网络直接观影（网页）
 
-https://ncddh5.xggjwb.club/ 为丁丁H5永久域名，丁友可以翻墙观看，欢迎随时回家
+https://ding666.app 为丁丁H5永久域名，丁友可以翻墙观看，欢迎随时回家
